@@ -1,1 +1,0 @@
-# magayon.github.io
